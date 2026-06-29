@@ -1,4 +1,4 @@
-
+smart enter brainrot heads Scripts offers the most advanced enter brainrot heads Script, with auto-heal and teleport. Perfect for dominating any
 
 
 
